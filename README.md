@@ -1,4 +1,4 @@
-- 👋 ooi,meu nome insta é @anaraquelpp
+- 👋 ooi,meu insta é @anaraquelpp
 - 👀 aprendiz do 1 ano A 
 - 🌱 terminei o jaava 
 - 💞️ espero melhorar a cada dia...
